@@ -1,4 +1,4 @@
-![alt text](https://lh3.googleusercontent.com/ogw/ADea4I5_bKTaAkK9-GmxfvLKUWhgEJQQMCNR6tjihYPh=s32-c-mo 1x, https://lh3.googleusercontent.com/ogw/ADea4I5_bKTaAkK9-GmxfvLKUWhgEJQQMCNR6tjihYPh=s64-c-mo 2x)
+![alt text](https://lh3.googleusercontent.com/ogw/ADea4I5_bKTaAkK9-GmxfvLKUWhgEJQQMCNR6tjihYPh=s32-c-mo)
 ### Hi there, I'm Jorge Lopez 👋
 
 ##I am a student at the Private University of Bolivia (UPB), with the aim of integrating the knowledge acquired in different Starup and projects. Likewise, I seek the growth of myself through different academic programs and courses, taking advantage of the opportunities that are granted. Give my best effort to do everything I do in the best way and gather as much knowledge as possible to solve different social and personal problems.
